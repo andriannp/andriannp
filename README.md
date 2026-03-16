@@ -2,12 +2,12 @@
 ### SUMMARY
 Certified marketer with 7 years of experience. Hold a master’s degree in management and currently serves as a Market Development and Strategics Specialist at PT Kertas Padalarang, also known as Peruri Security Paper Mill (Perum Percetakan Uang Republik Indonesia Group). Assessor Competency at LSP Retail Indonesia specializing in Digital Marketing. In addition to the role as a marketer, serves as an Auditor for ISO 9001 quality management systems and ISO 28000 supply chain management systems, risk agent, halal management team, corporate trainer and as a secretary for several of the company's strategic investment projects. Contributed to the publication of scientific works, including an article entitled “Understanding Consumer Intention to Use Indonesian Electronic Stamp Duty through Technology Acceptance Model (TAM): Study on PT Peruri Digital Security’s Consumer”, and two academic books entitled “Introduction to Management Information Systems” and “Marketing Management (Internet of Things Perspective)”. Awarded the gold medal in the Innovation Stream category at the PERURI Innovation Award and the Kaizen Award 2024 (IAKA 2024). Currently active as a member of the Indonesia Marketing Association (IMA) Chapter 106 and as a committee member of the Alumni Association of the Faculty of Economics and Business at Jenderal Achmad Yani University.
 ### WORK EXPERIENCE
-**1.	PT Kertas Padalarang (Peruri Security Paper Mill)**
+**1. PT Kertas Padalarang (Peruri Security Paper Mill)**
 - Ahli Muda Pengembangan dan Strategi (May 2025 - Present)
 - Ahli Muda Pemasaran dan Penjualan Bidang Pengembangan dan Strategi Pemasaran (June 2024 - May 2025)
 - Senior Staff Pemasaran (June 2019 - June 2024)
 
-**2. •	Universitas Terbuka – Fakultas Ekonomi dan Bisnis**
+**2. Universitas Terbuka – Fakultas Ekonomi dan Bisnis**
 - Academic Tutor (03010063)
 
 **3. Lembaga Sertifikasi Profesi Retail Indonesia (LSP Retail Indonesia)**
