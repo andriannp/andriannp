@@ -10,7 +10,19 @@ Certified marketer with 7 years of experience. Hold a master’s degree in manag
 - Senior Staff Pemasaran (June 2019 - June 2024)
 
 **2. Universitas Terbuka – Fakultas Ekonomi dan Bisnis**
-- Academic Tutor (03010063)
+- Academic Tutor (03010063) (March 2026-Present)
 
 **3. Lembaga Sertifikasi Profesi Retail Indonesia (LSP Retail Indonesia)**
 - BNSP’s Assessor Competency - No Reg MET 0000.004255 2025 (January 2026-Present)
+
+---
+
+### AWARDS
+Awarded the gold medal in the innovation stream category at the PERURI Innovation Award and Kaizen Award 2024 (IAKA 2024) for innovation project proposal titled “rancang bangun e-commerce untuk produk specialty paper di PT Kertas Padalarang” with main role as a team leader. On August 15, 2024, located at ''the gedung pusat pembelajaran dan sertifikasi profesi'', Perum Peruri Karawang. With two other members of the eCommerce team, presented the digital transformation model Infront of two judges, namely Prof. Dr. Aries Susanty, S.T., M.T., and Dr. Setia Abikusna, S.T., M.T., IPM., Asean Eng 
+
+---
+
+### BOOKS AND SCIENTIFIC PAPER
+- Prabawa, A. N., Romi, M. V., C Abdillah, A. F. (2024). Understanding Consumer Intention to Use Indonesian Electronic Stamp Duty through Technology Acceptance Model (TAM): Study on PT Peruri Digital Security’s Consumer. Management Studies and Entrepreneurship Journal (MSEJ), 5(1), 3045–3060. https://doi.org/10.37385/msej.v5i1.4440
+- Prabawa, A. N. et al. (2023) Pengantar Sistem Informasi Manajemen. Malang; PT Literasi Nusantara Abadi Grup
+- Prabawa, A. N. et al. (2023) Manajemen Pemasaran (Perspektif Internet of Things). Bandung; CV Media Sains Indonesia
