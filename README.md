@@ -6,7 +6,9 @@ Certified marketer with 7 years of experience. Hold a master’s degree in manag
 - Ahli Muda Pengembangan dan Strategi (May 2025 - Present)
 - Ahli Muda Pemasaran dan Penjualan Bidang Pengembangan dan Strategi Pemasaran (June 2024 - May 2025)
 - Senior Staff Pemasaran (June 2019 - June 2024)
+
 **2. •	Universitas Terbuka – Fakultas Ekonomi dan Bisnis**
 - Academic Tutor (03010063)
+
 **3. Lembaga Sertifikasi Profesi Retail Indonesia (LSP Retail Indonesia)**
 - BNSP’s Assessor Competency - No Reg MET 0000.004255 2025 (January 2026-Present)
