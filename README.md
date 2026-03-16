@@ -26,3 +26,17 @@ Awarded the gold medal in the innovation stream category at the PERURI Innovatio
 - Prabawa, A. N., Romi, M. V., C Abdillah, A. F. (2024). Understanding Consumer Intention to Use Indonesian Electronic Stamp Duty through Technology Acceptance Model (TAM): Study on PT Peruri Digital Security’s Consumer. Management Studies and Entrepreneurship Journal (MSEJ), 5(1), 3045–3060. https://doi.org/10.37385/msej.v5i1.4440
 - Prabawa, A. N. et al. (2023) Pengantar Sistem Informasi Manajemen. Malang; PT Literasi Nusantara Abadi Grup
 - Prabawa, A. N. et al. (2023) Manajemen Pemasaran (Perspektif Internet of Things). Bandung; CV Media Sains Indonesia
+
+---
+
+### PROFESSIONAL & COMPETENCY CERTIFICATION
+- Assessor Competency: Indonesian Professional Certification Authority (BNSP) (2025)
+- Certified Digital Marketing Specialist (CDMS): iTrain Asia Pte. Ltd. Singapore (2024)
+- Certified Marketing Skills Professional (CMSP): Revolution Mind Indonesia® (2024)
+- Certified Secure Computer User V3 (CSCU): EC-Counsil (2023)
+- Digital Marketing: Indonesian Professional Certification Authority (BNSP) (2023)
+- Internet of Things Device Engineering: Indonesian Professional Certification Authority (BNSP) (2022)
+- Digital Marketing: Markplus, Inc. (2021)
+- Operational Marketer in Brand: Indonesian Professional Certification Authority (BNSP) (2020)
+- Marketing 4.0: Markplus, Inc. (2020)
+- Computer Hardware Technician - The Indonesian Institute of Computer and Informatics (LPKII) (2012)
